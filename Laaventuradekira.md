@@ -2,6 +2,4 @@ Había una vez unos reyes que estaban esperando  a su  hijo y ya sabian como se 
                 
 
 
-                                                             FIM
-si no se quedo claro quien es tilsa vayan a leer La sacrificacion de tilsa vay
-                                          La aventura de kira
+FIN, si no se quedo claro quien es tilsa vayan a leer La sacrificacion de tilsa vay La aventura de kira
